@@ -1,2 +1,2 @@
-##                                                           ˗ˏˋ ★ ˎˊ˗ Welcome to my Github profile! ˗ˏˋ ★ ˎˊ˗
+##                                                           ˗ˏˋ ★ ˎˊ˗ Welcome to my Github profil! ˗ˏˋ ★ ˎˊ˗
 
